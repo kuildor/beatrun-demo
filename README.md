@@ -11,17 +11,20 @@ And I know that datae will be read this. Sometime you will find this repo and yo
 
 Just imagine, you get a over9000 dollars for the best parkour mod, and you will ban **ANY** CIS residents in your group/server cause someone russian ret*rd calls you a n**ger lover! What the circus! 
 
-| ![images/1.png](images/1.png) | | ![images/6.png](images/6.png) |
+ ![images/1.png](images/1.png)  ![images/6.png](images/6.png)
 > I don't have a problem with russians IRL
+
 And you're banning slavic persons after buying the mod. Isn't the racism? Oh yea, it is, and you admit this fact.
+
 >inb4 OUT OF CONTEXT!!!11
 
 
-| ![images/2.png](images/2.png) |
+
+ ![images/2.png](images/2.png) 
 Imagine banning for being in >servers distributing pirated copies.
 
 
-| ![images/3.png](images/3.png) |
+ ![images/3.png](images/3.png) 
 Actual fun moment — make a code which will crash GMod if account have a enabled "Family Sharing" feature.
 
 Also, datae is:
@@ -29,12 +32,12 @@ Also, datae is:
 — Transphobic
 — Crashing GMod servers using backdoors
 
-| ![images/4.jpg](images/4.jpg) |
+ ![images/4.jpg](images/4.jpg) 
 
-| ![images/5.jpg](images/5.jpg) |
+ ![images/5.jpg](images/5.jpg) 
 
 
 Well, you knew about datae everything. Nothing personal, just business.
 
 Oh, BTW, I forgot about the maximal bruh moment.
-| ![images/7.png](images/7.png) |
+ ![images/7.png](images/7.png) 
