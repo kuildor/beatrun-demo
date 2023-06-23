@@ -1,5 +1,9 @@
 # beatrun-demo
 
+**Current code and README are outdated. Go to beatrun.ru for more information.**
+
+
+
 A re-upload of "Beatrun" — parkour gamemode for Garry's Mod. Currently in demo stage.
 
 I love cheese, you know, put cheese on bread and make it melt in microwave, best thing ever. It's so hot you can't even touch it properly but want to take a bite - whole thing is tasty only when it's hot. I probably should do this tomorrow. And don't forget the tea - don't add sugar in it, let yourself taste cheese fully as you can. And then when everything is eaten you realize you have to wash it, melted cheese stuck on dish and later you try hard to wash it off.
