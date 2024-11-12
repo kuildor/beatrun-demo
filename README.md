@@ -1,6 +1,6 @@
 # beatrun-demo
 
-**Current code and README are outdated. Go to beatrun.ru for more information.**
+**Current code and README are outdated. Go to [this repo ](https://github.com/JonnyBro/beatrun?tab=readme-ov-file) for more information.**
 
 
 
